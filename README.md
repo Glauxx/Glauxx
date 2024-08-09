@@ -6,3 +6,5 @@ Meu nome é Glaucia Pacheco
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
 Meu instragram: @byglaux
+
+> Domo, awarimasu.
